@@ -1,4 +1,4 @@
-#UKDSA
+⭐️ Data Science Association  ⭐️
 
 ### about us :
 
